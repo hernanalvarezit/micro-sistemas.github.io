@@ -37,7 +37,7 @@ Su hijo Ariel Müller cuenta:
 > ¿Donde tenía la oficina?
 > En la esquina de Charleston Road y Alta Avenue años más tarde ahí estaría Google…
 
-Maxxima Corporation hizo diversos productos como por ejemplo un hardware para spooler de impresonra.
+Maxxima Corporation hizo diversos productos como por ejemplo un hardware para spooler de impresora.
 
 Héctor Müller falleció el 26 de abril de 2003. El día en que se ejecutaba el virus Chernobyl.
 En una humorada algunos amigos que fueron al sepelio decía que el virus se vengó de él ya que años antes había fabricado una placa antivirus.
